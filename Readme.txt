@@ -1,1 +1,1 @@
-Invat git-ulla CEITI.
+Invat git-ul la CEITI.
